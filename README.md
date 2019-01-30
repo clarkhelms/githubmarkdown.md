@@ -56,6 +56,6 @@ as a solid.
    * wear gloves  
 4. Bob Ross once quipped:  
      > We don't make mistakes, just happy little accidents  
-5. One more light swipe with a clean cloth to remove excess...  
+5. One more light swipe with a clean cloth to remove excess......
 
 
